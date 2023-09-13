@@ -1,2 +1,1 @@
-# PRATICA17
-# PRATICA17
+Membros da equipe: Albert, Edmundo e Joao
